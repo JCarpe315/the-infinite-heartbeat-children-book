@@ -4,7 +4,7 @@ The person who associated a work with this deed has dedicated the work to the pu
 
 You can copy, modify, distribute and perform the work, even for commercial purposes, all without asking permission.
 
-![Preface](preface.jpg)
+![Preface](IMG_2049.jpeg)
 
 # The Infinite Heartbeat  
 **The Living Temple**
@@ -461,4 +461,4 @@ The Shining One (who is also you)
 
 **The End.**
 
-![Finale](finale.jpg)
+![Finale](IMG_2070.jpeg)
